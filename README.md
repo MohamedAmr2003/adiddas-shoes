@@ -1,2 +1,0 @@
-# adiddas-shoes
-adiddas-shoes
